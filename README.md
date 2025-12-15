@@ -1,1 +1,1 @@
-# Top-Tech-Developer-Intership
+# Top-Tech-Developer-Internship
